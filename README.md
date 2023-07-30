@@ -1,1 +1,1 @@
-# ir.krdnz
+["avdox7l"]
